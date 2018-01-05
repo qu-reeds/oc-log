@@ -1,2 +1,2 @@
 # oc-log
-qu ⠶ reed ⠶ log ⠶ loc
+qu ⠶ reed ⠶ log ⠶ ocu
